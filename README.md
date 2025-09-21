@@ -20,7 +20,8 @@
 ## راه ارتباطی
 - پیج اینستاگرام: [@Randomroom404](https://instagram.com/Randomroom404)
 
-
+- کانال تلگرام:
+  (https://t.me/+3-P2oKqMAP05MWE0)
 ---
 
 > © ۲۰۲۵ Random Room | رندوم روم — همه حقوق محفوظ است
